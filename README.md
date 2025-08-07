@@ -1,6 +1,9 @@
 Student names: Vutlhari Elein Mashali  (ST10479733) 
+
                Prelude Fedility Lwethu Thabethe (ST10098853)
+               
                Phathutshedzo Azania Sibanda (ST10488658) 
+               
                Warona June Makoe (ST10495664) 
 
  
